@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...t uio
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...54945bsdffrgh4
+- 📫 How to reach me ...54945bsdffrgh4gzdfg
 34rhmxds fh54wuu srjtcghk qer
 <!---6
 natbee423423/natbee423423 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
